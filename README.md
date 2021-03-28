@@ -1,1 +1,1 @@
-# KiDS_domaci_1_vezba_1
+# KiDS_domaci_1_vezba
